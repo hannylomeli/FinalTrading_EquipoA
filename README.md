@@ -1,1 +1,1 @@
-# FinalTrading_EquipoA
+MySt3
